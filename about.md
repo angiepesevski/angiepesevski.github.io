@@ -12,4 +12,4 @@ I am always looking to connect with new people. Feel free to contact me.
 
 ### Contact me
 
-[email@domain.com](mailto:pesevskiange@gmail.com)
+[pesevskiange@gmail.com](mailto:pesevskiange@gmail.com)
